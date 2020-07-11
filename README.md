@@ -1,4 +1,116 @@
-# jkzta.github.io
-wtf
-# KILL ZEROTWO
-w
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>kill zerotwo
+<br>
+kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>
+kill zerotwo
+<br>kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>kill zerotwo
+<br>
+kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>
+kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+kill zerotwo
+<br>
+v
+kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>
+kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>kill zerotwo
+<br>
